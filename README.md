@@ -6,8 +6,10 @@
 - 🌱 I’m currently learning **AI/ML , Deep Learning , DevOps and Web Development**
 
 - 📫 How to reach me **sahay281620@gmail.com**
-
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KhmMVbIDdH6FOj2pnJ7Nc1VlV11Y63mS/view?usp=sharing](https://drive.google.com/file/d/1KhmMVbIDdH6FOj2pnJ7Nc1VlV11Y63mS/view?usp=sharing)
+- 📫 How to reach me **sahayshreya20@gmail.com**
+  
+- 📄 Know about my experiences [https://drive.google.com/file/d/1hyK79_vlpNRd9w0W5zqvBbSBgaTIWdGD/view?usp=sharing](https://drive.google.com/file/d/1hyK79_vlpNRd9w0W5zqvBbSBgaTIWdGD/view?usp=sharing)
+- 📄 COVER LETTER [https://drive.google.com/file/d/11N6t0FgskchNV_dzkFcxqWkUSFuv5ck_/view?usp=sharing](https://drive.google.com/file/d/11N6t0FgskchNV_dzkFcxqWkUSFuv5ck_/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 
